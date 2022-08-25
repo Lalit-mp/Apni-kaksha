@@ -1,2 +1,2 @@
 Click on the link down to checkout this website.
-# Apni-kaksha
+# https://lalit-mp.github.io/Apni-kaksha/
